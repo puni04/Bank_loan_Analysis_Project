@@ -42,8 +42,8 @@ To replicate this analysis, perform the following steps:
 For any inquiries, feedback, or collaboration opportunities regarding this project, please reach out to:
 
 - Project Lead: [Bank Loan Application]
-- Email: [belixarockiadass@gmail.com]
-- LinkedIn: [https://www.linkedin.com/in/belixarockiyadass/]
+- Email: [punithat85@gmail.com]
+- LinkedIn: [https://www.linkedin.com/in/punithavathi-t-384784265/?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app]
 
 
 
